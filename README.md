@@ -1,0 +1,1 @@
+# fuduck.github.io
